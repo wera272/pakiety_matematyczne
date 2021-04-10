@@ -1,1 +1,4 @@
 ###ruch okośny
+lsnvjnvfsnv
+zabaawa
+
